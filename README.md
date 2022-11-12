@@ -4,9 +4,7 @@
 - 🤔 I’m looking for help with https://github.com/Hihiz 🤔
 - 💬 Ask me about how expensive?
 - 📫 How to reach me: 
-- 📫 1) https://www.twitch.tv/nr2234- my twitch 📫
-- 📫 2) https://steamcommunity.com/profiles/76561199096504049/- my steam 📫
-- 📫 3) https://www.youtube.com/channel/UCKqS2AGh-kyun1KAOnlni7A- my youtube 😄
+- 📫https://steamcommunity.com/profiles/76561199096504049/- my steam 📫
 - Thanks! :heart:
 Contributions are welcome! &lt;3
 
