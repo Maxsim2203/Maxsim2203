@@ -4,7 +4,6 @@
 - 🤔 I’m looking for help with https://github.com/Hihiz 🤔
 - 💬 Ask me about how expensive?
 - 📫 How to reach me: 
-- 📫https://steamcommunity.com/profiles/76561199096504049/- my steam 📫
 - Thanks! :heart:
 Contributions are welcome! &lt;3
 
