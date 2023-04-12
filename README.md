@@ -3,7 +3,6 @@
 - 👯 I’m looking to collaborate on https://github.com/Hihiz
 - 🤔 I’m looking for help with https://github.com/Hihiz 🤔
 - 💬 Ask me about how expensive?
-- 📫 How to reach me: 
 - Thanks! :heart:
 Contributions are welcome! &lt;3
 
